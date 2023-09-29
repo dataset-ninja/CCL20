@@ -1,0 +1,1 @@
+CCL'20: Conghua Citrus Leaf 2020 is under [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/legalcode) license.
